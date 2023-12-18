@@ -1,3 +1,5 @@
+# Mastering Business Success: Proven Strategies for Food Ventures
+
 Video summary [00:00:02][1] - [00:08:26][2]:
 
 Part 1 of the video talks about how to start a successful food business by copying and improving a proven business model. The speaker gives advice to a young man who wants to sell different varieties of samosas and momos in his area.
