@@ -1,6 +1,7 @@
 # How to Start a Successful Cosmetic Shop in Rural India
 
-Video link :- 
+Video link :- https://youtu.be/eGJgS9ubhDc?si=7CzvAgaGBez5FkTD
+
 Video summary [00:00:02][1] - [00:10:00][2]:
 
 Part 1 of the video talks about how to start a beauty and cosmetic shop in a village. The speaker, Sandeep Maheshwari, gives advice and guidance to a woman who wants to pursue this business idea.
